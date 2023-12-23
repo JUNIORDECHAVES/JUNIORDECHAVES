@@ -1,4 +1,4 @@
-## olá , eu sou Junior Chaves ✋
+## olá, eu sou Junior Chaves ✋
 
 ## Conecte-se comigo 👦
 
